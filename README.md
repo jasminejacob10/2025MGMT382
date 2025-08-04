@@ -1,0 +1,2 @@
+# 2025MGMT382
+MGMT 382 Summer Project 
